@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...dfg(hnvdks
 - 📫 How to reach me: ...eu
 - 😄 Pronouns: ...pdkcrjvt
-- ⚡ Fun fact: ...khndid
+- ⚡ Fun fact: ...khndidrroelbow
 -->
