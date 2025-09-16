@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...gj
 - 💬 Ask me about ...dfg(hnvdks
 - 📫 How to reach me: ...eu
-- 😄 Pronouns: ...pdkcr
+- 😄 Pronouns: ...pdkcrjvt
 - ⚡ Fun fact: ...khndid
 -->
